@@ -1,7 +1,9 @@
 # MY-STORE
-https://p-o-e-t-1008.myshopify.com/  click the link! 
 
+https://p-oet1-2.myshopify.com/  click the link! 
 
 https://www.legaleriste.com/P.O.E.T
 
 https://www.paypal.me/POET2022
+
+https://www.legaleriste.com/P.O.E.T
